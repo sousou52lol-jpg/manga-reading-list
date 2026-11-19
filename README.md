@@ -28,4 +28,4 @@ My personal list of what I'm reading and waiting for Updated whenever I remember
 Memes live on mastodon, not here.
 If a chapter drops late, I will complain about it
 
-_last updated: whenever_
+_last updated: 09/11/2026_
